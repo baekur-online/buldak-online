@@ -1,6 +1,6 @@
 ## Matreiðsluleiðbeiningar
 
-#### Þýtt úr ensku yfir á íslensku: Judy Y. Fong
+#### Þýtt úr ensku yfir á íslensku: [Judy Y. Fong](https://about.judyyfong.xyz)
 ### Proofread by: an anonymous Icelander
 
 (IS)
